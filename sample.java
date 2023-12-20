@@ -1,0 +1,3 @@
+
+Zindagi hame bohat kuch sikhati hai kabhi hasati hai to kabhi rulati hai
+per jo her haal me khush rehta hai zindagi usi ke sir jhukati hai.....
